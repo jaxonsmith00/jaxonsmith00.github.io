@@ -9,8 +9,5 @@ SUP HOME SLICE _**DAWGS IN THE HIZ HOUSE**_ Now this shouls be normal text
 ### h3 Third
 #### h stands for header
 ##### it goes at the top of a section
-https://giphy.com/gifs/season-3-the-simpsons-3x16-xT5LMVTPf4zIH3zYk0
-
-<iframe src="https://giphy.com/embed/Rr7qHxZLZLCpy" width="480" height="290" frameBorder="0" class="giphy-embed" allowFullScreen></iframe><p><a href="https://giphy.com/gifs/south-park-dance-cartman-Rr7qHxZLZLCpy">via GIPHY</a></p>
 
 <div style="width:100%;height:0;padding-bottom:60%;position:relative;"><iframe src="https://giphy.com/embed/Rr7qHxZLZLCpy" width="100%" height="100%" style="position:absolute" frameBorder="0" class="giphy-embed" allowFullScreen></iframe></div><p><a href="https://giphy.com/gifs/south-park-dance-cartman-Rr7qHxZLZLCpy">via GIPHY</a></p>
