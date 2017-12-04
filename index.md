@@ -18,5 +18,5 @@ SUP HOME SLICE _**DAWGS IN THE HIZ HOUSE**_ Now this shouls be normal text
 
 <div style="width:100%;height:0;padding-bottom:86%;position:relative;"><iframe src="https://giphy.com/embed/DTywu7YYjWCVW" width="100%" height="100%" style="position:absolute" frameBorder="0" class="giphy-embed" allowFullScreen></iframe></div><p><a href="https://giphy.com/gifs/homer-simpson-the-simpsons-season-6-DTywu7YYjWCVW">via GIPHY</a></p>
 
-### 3d things rule!
+### 3d things rule! 
 <script src="//360.vizor.io/scripts/embed.js" data-vizorurl="https://360.vizor.io/embed/v/gadj6" ></script>
