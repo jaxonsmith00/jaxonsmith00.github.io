@@ -14,7 +14,7 @@ SUP HOME SLICE _**DAWGS IN THE HIZ HOUSE**_ Now this shouls be normal text
 <div style="width:100%;height:0;padding-bottom:60%;position:relative;"><iframe src="https://giphy.com/embed/Rr7qHxZLZLCpy" width="100%" height="100%" style="position:absolute" frameBorder="0" class="giphy-embed" allowFullScreen></iframe></div><p><a href="https://giphy.com/gifs/south-park-dance-cartman-Rr7qHxZLZLCpy">via GIPHY</a></p>
 
 #### Whoever sees this can be entered into a 1 dollar Xbox giveaway
-**This is how i feel baout moneyz** 
+**This is how i feel about moneyz** 
 
 <div style="width:100%;height:0;padding-bottom:86%;position:relative;"><iframe src="https://giphy.com/embed/DTywu7YYjWCVW" width="100%" height="100%" style="position:absolute" frameBorder="0" class="giphy-embed" allowFullScreen></iframe></div><p><a href="https://giphy.com/gifs/homer-simpson-the-simpsons-season-6-DTywu7YYjWCVW">via GIPHY</a></p>
 
