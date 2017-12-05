@@ -1,5 +1,5 @@
 # h1 Biggest
-Now this is regular text.
+**Aaron finna almost got broken up with on thanksgiving, rip you but its okay now even though its not okay to date a WOMEN**
 Then we can **bold** with two asterixssszzz
 also, there is _italics that can be added with underscores! dawg_
 the second symbol ends the started previous one... try bold and italic...
