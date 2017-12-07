@@ -1,24 +1,8 @@
-# h1 Biggest
-**Aaron finna almost got broken up with on thanksgiving, rip you but its okay now even though its not okay to date a WOMEN. Then theres _JOJO_ over here looking up his dope Mossosaurous now hes watching an ad for CoCo,and now listening to _Audioslave_**
-Then we can **bold** with two asterixssszzz
-also, there is _italics that can be added with underscores! dawg_
-the second symbol ends the started previous one... try bold and italic...
-SUP HOME SLICE _**DAWGS IN THE HIZ HOUSE**_ Now this shouls be normal text
+# Passenger Pidgeon, a.k.a. Ectopistes migratious
 
-I got it b4 u _JOJO_
-<div style="width:100%;height:0;padding-bottom:50%;position:relative;"><iframe src="https://giphy.com/embed/semLgqWI3U3qU" width="100%" height="100%" style="position:absolute" frameBorder="0" class="giphy-embed" allowFullScreen></iframe></div><p><a href="https://giphy.com/gifs/semLgqWI3U3qU">via GIPHY</a></p>
-## h2 Second Biggest
-### h3 Third
-#### h stands for header
-##### it goes at the top of a section
+https://media.npr.org/assets/img/2017/11/16/passenger_pigeon_shoot-1_custom-4f9b2874bef9f96c99a795fdd11c0be06fb96c44-s800-c85.jpg
+This picture shows the hunters killing the pidgoens in its huge flock
 
-# WooHoo, I may have figured out how to work this
-<div style="width:100%;height:0;padding-bottom:60%;position:relative;"><iframe src="https://giphy.com/embed/Rr7qHxZLZLCpy" width="100%" height="100%" style="position:absolute" frameBorder="0" class="giphy-embed" allowFullScreen></iframe></div><p><a href="https://giphy.com/gifs/south-park-dance-cartman-Rr7qHxZLZLCpy">via GIPHY</a></p>
+Medium sized, and found in the large forested areas of the U.S., but there were many midwest U.S. sightings too
 
-#### Whoever sees this can be entered into a 1 dollar Xbox giveaway
-**This is how i feel about moneyz** 
-
-<div style="width:100%;height:0;padding-bottom:86%;position:relative;"><iframe src="https://giphy.com/embed/DTywu7YYjWCVW" width="100%" height="100%" style="position:absolute" frameBorder="0" class="giphy-embed" allowFullScreen></iframe></div><p><a href="https://giphy.com/gifs/homer-simpson-the-simpsons-season-6-DTywu7YYjWCVW">via GIPHY</a></p>
-
-### 3d things rule! 
-<script src="//360.vizor.io/scripts/embed.js" data-vizorurl="https://360.vizor.io/embed/v/gadj6" ></script>
+-
