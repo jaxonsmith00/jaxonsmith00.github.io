@@ -1,10 +1,12 @@
 # h1 Biggest
-**Aaron finna almost got broken up with on thanksgiving, rip you but its okay now even though its not okay to date a WOMEN**
+**Aaron finna almost got broken up with on thanksgiving, rip you but its okay now even though its not okay to date a WOMEN. Then theres _JOJO_ over here looking up his dope Mossosaurous now hes watching an ad for CoCo,and now listening to _Audioslave_**
 Then we can **bold** with two asterixssszzz
 also, there is _italics that can be added with underscores! dawg_
 the second symbol ends the started previous one... try bold and italic...
 SUP HOME SLICE _**DAWGS IN THE HIZ HOUSE**_ Now this shouls be normal text
 
+I got it b4 u _JOJO_
+<div style="width:100%;height:0;padding-bottom:50%;position:relative;"><iframe src="https://giphy.com/embed/semLgqWI3U3qU" width="100%" height="100%" style="position:absolute" frameBorder="0" class="giphy-embed" allowFullScreen></iframe></div><p><a href="https://giphy.com/gifs/semLgqWI3U3qU">via GIPHY</a></p>
 ## h2 Second Biggest
 ### h3 Third
 #### h stands for header
