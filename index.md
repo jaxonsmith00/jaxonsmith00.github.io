@@ -30,7 +30,7 @@
 
 -The pigeon replaced it because the passenger pigeons were hunted to extinction, and it needed to be replaced on the food chain as well as needed to be used in world war 1, to race, and to experiment on because of their high levels of intelligence.
 
--The other species that were affected by the passenger pigeon dying were the humans, the gran and fruit numbers, and finally insects such as spiders and grasshoppers. The eagles, hawks, and falcons were also all affected because they were the predatory birds that would eat the passenger pigeons.
+-The other species that were affected by the passenger pigeon dying were the humans, the grain, fruit, and insects such as spider and grasshopper numbers increased. The eagles, hawks, and falcons were also all affected because they were the predatory birds that would eat the passenger pigeons. <iframe src="https://giphy.com/embed/oEJsdbNfCYr0Q" width="480" height="327" frameBorder="0" class="giphy-embed" allowFullScreen></iframe><p><a href="https://giphy.com/stickers/hawks-oEJsdbNfCYr0Q">via GIPHY</a></p> <iframe src="https://giphy.com/embed/8thnhsThb58Mo" width="480" height="402" frameBorder="0" class="giphy-embed" allowFullScreen></iframe><p><a href="https://giphy.com/stickers/pictures-free-animatedanimatedappleimage0020-8thnhsThb58Mo">via GIPHY</a></p>
 
 ##### How extinction could have been stopped**
 
