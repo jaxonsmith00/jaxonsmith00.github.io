@@ -20,7 +20,9 @@
 
 -As previously stated, there were originally 5 billion passenger pigeons when the settlers first noticed them in 1764 in America, but only a short 150 years later, the last passenger pigeon had died in a zoo in 1914.
 
--Here is what i would say it looked like to hunt the pigeons <div style="width:100%;height:0;padding-bottom:75%;position:relative;"><iframe src="https://giphy.com/embed/Pqba2HJOos1sk" width="100%" height="100%" style="position:absolute" frameBorder="0" class="giphy-embed" allowFullScreen></iframe></div><p><a href="https://giphy.com/gifs/Pqba2HJOos1sk">via GIPHY</a></p>
+-Here is what i would say it looked like to hunt the pigeons
+
+<div style="width:100%;height:0;padding-bottom:75%;position:relative;"><iframe src="https://giphy.com/embed/Pqba2HJOos1sk" width="100%" height="100%" style="position:absolute" frameBorder="0" class="giphy-embed" allowFullScreen></iframe></div><p><a href="https://giphy.com/gifs/Pqba2HJOos1sk">via GIPHY</a></p>
 
 #### Replacement organisms
 
