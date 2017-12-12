@@ -1,5 +1,7 @@
 # The Passenger Pidgeon, a.k.a. Ectopistes migratious
 
+https://upload.wikimedia.org/wikipedia/commons/thumb/0/00/Ectopistes_migratorius_%28passenger_pigeon%29.jpg/220px-Ectopistes_migratorius_%28passenger_pigeon%29.jpg
+
 ## The Origins and basics of the Passenger Pigeon
 
 -Medium sized, and found in the large forested areas of the U.S., but there were many Midwest U.S. sightings too
@@ -7,8 +9,6 @@
 -It accounted for 40% of bird population when the settlers came to America, having a total of 5 billion in all
 
 -They flocked together, were built for speed, and could fly for up to 8 hours at a time
-
-<div style="width:100%;height:0;padding-bottom:75%;position:relative;"><iframe src="https://giphy.com/embed/In9EOOJP44SK4" width="100%" height="100%" style="position:absolute" frameBorder="0" class="giphy-embed" allowFullScreen></iframe></div><p><a href="https://giphy.com/stickers/income-inequality-In9EOOJP44SK4">via GIPHY</a></p>
 
 -The average lifespan was 15 years and they often reached sexual maturity at month 2 and learned to fly once they fully had gained the strength, which was based on food intake. SO that factor varied depending on living conditions, etc.
 
@@ -22,7 +22,7 @@
 
 -Here is what i would say it looked like to hunt the pigeons
 
-<div style="width:100%;height:0;padding-bottom:75%;position:relative;"><iframe src="https://giphy.com/embed/Pqba2HJOos1sk" width="100%" height="100%" style="position:absolute" frameBorder="0" class="giphy-embed" allowFullScreen></iframe></div><p><a href="https://giphy.com/gifs/Pqba2HJOos1sk">via GIPHY</a></p>
+https://www.google.com/imgres?imgurl=https://upload.wikimedia.org/wikipedia/commons/8/89/Passenger_pigeon_shoot.jpg&imgrefurl=https://en.wikipedia.org/wiki/Passenger_pigeon&h=1093&w=1484&tbnid=Qovmq4KXQJxnKM:&tbnh=160&tbnw=217&usg=__bR3zKwnWimTkQ2694V8UqEc9160%3D&vet=10ahUKEwjhz8-DpYXYAhUi_IMKHcHVD0gQ9QEIKjAA..i&docid=PE0FCVGnMIBZYM&sa=X&ved=0ahUKEwjhz8-DpYXYAhUi_IMKHcHVD0gQ9QEIKjAA
 
 #### Replacement organisms
 
