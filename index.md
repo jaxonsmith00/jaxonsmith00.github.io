@@ -30,14 +30,18 @@
 
 -The pigeon replaced it because the passenger pigeons were hunted to extinction, and it needed to be replaced on the food chain as well as needed to be used in world war 1, to race, and to experiment on because of their high levels of intelligence.
 
--The other species that were affected by the passenger pigeon dying were the humans, the grain, fruit, and insects such as spider and grasshopper numbers increased. The eagles, hawks, and falcons were also all affected because they were the predatory birds that would eat the passenger pigeons. <iframe src="https://giphy.com/embed/oEJsdbNfCYr0Q" width="480" height="327" frameBorder="0" class="giphy-embed" allowFullScreen></iframe><p><a href="https://giphy.com/stickers/hawks-oEJsdbNfCYr0Q">via GIPHY</a></p> <iframe src="https://giphy.com/embed/8thnhsThb58Mo" width="480" height="402" frameBorder="0" class="giphy-embed" allowFullScreen></iframe><p><a href="https://giphy.com/stickers/pictures-free-animatedanimatedappleimage0020-8thnhsThb58Mo">via GIPHY</a></p>
+-The other species that were affected by the passenger pigeon dying were the humans, the grain, fruit, and insects such as spider and grasshopper numbers increased. The eagles, hawks, and falcons were also all affected because they were the predatory birds that would eat the passenger pigeons. 
+
+<iframe src="https://giphy.com/embed/oEJsdbNfCYr0Q" width="480" height="327" frameBorder="0" class="giphy-embed" allowFullScreen></iframe><p><a href="https://giphy.com/stickers/hawks-oEJsdbNfCYr0Q">via GIPHY</a></p> <iframe src="https://giphy.com/embed/8thnhsThb58Mo" width="480" height="402" frameBorder="0" class="giphy-embed" allowFullScreen></iframe><p><a href="https://giphy.com/stickers/pictures-free-animatedanimatedappleimage0020-8thnhsThb58Mo">via GIPHY</a></p>
 
 ##### How extinction could have been stopped**
 
 -To keep the passenger pigeons from dying, I would try to implicate a hunting law that only allotted a few passenger pigeons to be hunted each year, just so they had time to grow back and replenish the population that had been killed.
 -I would’ve also made habitats for them so there could be certain places where they couldn’t be hunted and could be safe and make sure that more of them were put in zoos to preserve them. 
 
-The pigeon being slowly killed off <div style="width:100%;height:0;padding-bottom:56%;position:relative;"><iframe src="https://giphy.com/embed/12DLBuhDtQCBIk" width="100%" height="100%" style="position:absolute" frameBorder="0" class="giphy-embed" allowFullScreen></iframe></div><p><a href="https://giphy.com/gifs/pigeon-12DLBuhDtQCBIk">via GIPHY</a></p>
+The pigeon being slowly killed off 
+
+<div style="width:100%;height:0;padding-bottom:56%;position:relative;"><iframe src="https://giphy.com/embed/12DLBuhDtQCBIk" width="100%" height="100%" style="position:absolute" frameBorder="0" class="giphy-embed" allowFullScreen></iframe></div><p><a href="https://giphy.com/gifs/pigeon-12DLBuhDtQCBIk">via GIPHY</a></p>
 
 -The limitations on this would be that it would be hard to pass a law in old times because it was set, in some states, on what could and could not be done when the United States was just starting. 
 - Zoos and habitats are hard to keep up to code and build and they cost lots of money which I don’t have.
