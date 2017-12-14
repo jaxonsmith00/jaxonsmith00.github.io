@@ -12,13 +12,19 @@ https://upload.wikimedia.org/wikipedia/commons/thumb/0/00/Ectopistes_migratorius
 
 -The average lifespan was 15 years and they often reached sexual maturity at month 2 and learned to fly once they fully had gained the strength, which was based on food intake. SO that factor varied depending on living conditions, etc.
 
--Their behavior was based on making sure predators knew that they weren´t afraid of them, not concealing nests and traveling in flocks were some of the things that they did
+-Their behavior was based on making sure predators knew that they weren´t afraid of them, not concealing nests and traveling in flocks were some of the things that they did, acting as the Han Solo of birds.But they were also concious enough to leave a few days early before the common time of heading North, just to be safe, as well as not leaving the nest very much when they had babies so they could be protected and be well fed. 
+
+-They liked the heat of the Midwest, tending to be found to nest and vacate there in the winter, but the Passenger pigeon realy enjoyed the vast hills and dense forests of what is now known as he Shenandoah national park.
+
+-The resources that they used to build their nests were twigs and sticks that were easily accesable on the ground, and fun fact, they really enjoyed honey, scientists do not know whether this was for the nest or if they just iked the flavor. And like most other birds, they would build their nests and have their children in trees, to keep away predators and liked to eat small insects.
 
 ### Drive to extinction
 
--1 reason being the humans killing them for eating their corn, or killing them for meat. And finally, reducing the passenger pigeon population so much that’s its own biology was able to make it not able to keep alive 
+-1 reason being the humans killing them for eating their corn, or killing them for meat. And finally, humans had reduced the passenger pigeon population so much that’s its own biology was able to make it not able to keep alive, meaning that its speed and scattered locations later in the 1800s meant it was hard to mate.
 
 -As previously stated, there were originally 5 billion passenger pigeons when the settlers first noticed them in 1764 in America, but only a short 150 years later, the last passenger pigeon had died in a zoo in 1914.
+-Here is the bird 1 day before death
+https://www.google.com/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&cad=rja&uact=8&ved=2ahUKEwjf0eKvt4jYAhUO6mMKHX4YCH4QjRx6BAgAEAY&url=http%3A%2F%2Febird.org%2Fcontent%2Fpa%2Fnews%2Fremembering-martha-the-last-passenger-pigeon-lessons-from-the-past%2F&psig=AOvVaw3akshk4SExhk355Q1Fbbp-&ust=1513304034742749
 
 -Here is what i would say it looked like to hunt the pigeons
 
@@ -43,8 +49,8 @@ The pigeon being slowly killed off
 
 <div style="width:100%;height:0;padding-bottom:56%;position:relative;"><iframe src="https://giphy.com/embed/12DLBuhDtQCBIk" width="100%" height="100%" style="position:absolute" frameBorder="0" class="giphy-embed" allowFullScreen></iframe></div><p><a href="https://giphy.com/gifs/pigeon-12DLBuhDtQCBIk">via GIPHY</a></p>
 
--The limitations on this would be that it would be hard to pass a law in old times because it was set, in some states, on what could and could not be done when the United States was just starting. 
-- Zoos and habitats are hard to keep up to code and build and they cost lots of money which I don’t have.
+-The limitations on this would be that it would be hard to pass a law in old times because laws were set, in some states, on what could and could not be done when the United States was just starting. 
+-Zoos and habitats are hard to keep up to code and build and they cost lots of money which I don’t have.
 
 And that is my presentation on the passenger pigeon, I hoped you enjoyed!
 
